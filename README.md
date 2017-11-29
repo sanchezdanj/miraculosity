@@ -1,6 +1,9 @@
-# Miraculosity
-## *Never Stop Flushing*
+# Miraculosity: *Never Stop Flushing*
 
+## Lifestyle Products
+### Refreshing Manhole Mist Spray for Men
+
+### Suicide Musket
 
 ## Miraculosity Pantry
 Introducing our new line of items to meet all your gustatory delights! 
